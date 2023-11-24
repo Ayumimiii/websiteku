@@ -7,7 +7,8 @@
 ![Lars (For All Time) 600 3508766](https://github.com/Ayumimiii/websiteku/assets/139093820/b39c9041-3c20-4ccd-984c-fdf929c24530)
 ![Ayn (For All Time) full 3681538](https://github.com/Ayumimiii/websiteku/assets/139093820/8b465167-a187-4397-97a0-39248eea49d1)
 ![7f9752851593ee6f9d60a9ae7b3d7410](https://github.com/Ayumimiii/websiteku/assets/139093820/bd5bb721-f3b1-48be-8a63-208ad20785db)
-![8171f21faf62bc9319a7e57df7a540bf](https://github.com/Ayumimiii/websiteku/assets/139093820/ba2122d4-d5b8-4843-af0e-f7e14cc3d160)
+![pngtree-aesthetic-style-taobao-diamond-ring-poster-banner-template-image_189647](https://github.com/Ayumimiii/websiteku/assets/139093820/86a01465-8dc6-44f3-972f-1916aa1c151d)
+
 
 
 
