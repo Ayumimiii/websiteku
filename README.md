@@ -7,6 +7,6 @@
 ![Lars (For All Time) 600 3508766](https://github.com/Ayumimiii/websiteku/assets/139093820/b39c9041-3c20-4ccd-984c-fdf929c24530)
 ![Ayn (For All Time) full 3681538](https://github.com/Ayumimiii/websiteku/assets/139093820/8b465167-a187-4397-97a0-39248eea49d1)
 ![7f9752851593ee6f9d60a9ae7b3d7410](https://github.com/Ayumimiii/websiteku/assets/139093820/bd5bb721-f3b1-48be-8a63-208ad20785db)
-
+![5f5627d0faf95db81f2c44ddc2d66d68](https://github.com/Ayumimiii/websiteku/assets/139093820/74b56fc9-789b-461f-8e73-c098b9bc894b)
 
 
